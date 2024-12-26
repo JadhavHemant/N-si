@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/JadhavHemant](https://github.com/JadhavHemant)
 
-- 📫 How to reach me **7249395351**
+- 📫 How to reach me **https://wa.me/+917249395351**
 
 - ⚡ Fun fact **I Think I Am Funny**
 
